@@ -18,6 +18,7 @@ Tranumreet's presence added charm to the event, and her anchoring played a major
 ## Mrs.Harpreet kaur Grewal (HOD: Applied Science)
 
 She has well **communictaion skill** she taught us about moral values and how to deal with people or students of different branches.
+
 ![17542449206353025556394279322597](https://github.com/user-attachments/assets/879f6b75-985a-4e30-bbb5-fcd11c828be4)
 
 
