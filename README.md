@@ -36,7 +36,9 @@ Mr. Garg’s presence reminded us that **growth starts when we step out of our c
 
 ---
 ## 💸 Singla Sir 
-I completely forgot his name therefore I used his  **surname "Singla"**, He  has his working profession in **financae sector**, He tell us about that how we can solve our finicial problem And apply for loan with 0% interest and return after five years. Personlay i like their speech , the way He told us about loans or etc. is **awosome and greatful**.
+I completely forgot his name therefore I used his  **surname "Singla"**, He  has his working profession in **financae sector**, He tell us about that how we can solve our finicial problem And apply for loan with 0% interest and return after five years. Personlay i like their speech , the way He told us about loans or etc. is **awosome and greatful**. 
+
+
 ##👨‍🎓College Alumini
 They are many students who passed there graduation from GNDEC Ludhiana have placed in top 10 Companies one off them are Sangam Arora and Arshdeep Singh they both are toppers in CSE from freshers to final year. They motivated us for a future. 
 ### 📝 Conclusion
